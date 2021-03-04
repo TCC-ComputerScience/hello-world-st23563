@@ -1,1 +1,1 @@
-My name is Sean and I am originally from NC. I have lived in Virginia for about 2 years. I like playing basketball and playing video games. I also Like going to the gym and paddleboarding. I hope to one day work as a software engineer for a great company. 
+My name is Sean and I am originally from NC. I have lived in Virginia for about 2 years. I like playing basketball and playing video games. I also Like going to the gym and paddleboarding. I hope to one day work as a software engineer for a great company.
